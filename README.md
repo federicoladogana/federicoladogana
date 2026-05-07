@@ -51,7 +51,7 @@ Prima di lavorare con l'AI ho fatto **8 anni in retail management** — Store Ma
 
 - 💼 LinkedIn: [federico-ladogana](https://linkedin.com/in/federico-ladogana)
 - ✉️ Email: federico.ladogana@gmail.com
-- 📍 Milano, Italia · Aperto a remoto, ibrido o in presenza
+- 📍 Rho MI, Italia · Aperto a remoto, ibrido o in presenza
 
 ---
 
